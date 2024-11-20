@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NishenSamuel
+- 👋 Hi, I’m @Samuel
 - 👀 I’m interested in Music and Animation
 - 🌱 I’m currently learning Music and Animation
 - 💞️ I’m looking to collaborate on ...
